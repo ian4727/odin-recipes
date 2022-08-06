@@ -3,7 +3,7 @@ TOP's first mission: Recipe
 So, aside from I'm not a good cook, I am also anxious about setting 
 this all up on my own. Without TOP's instructions.
 
-Let's see, I think I'll go for food I know hot=w to cook by heart.
+Let's see, I think I'll go for food I know how to cook by heart.
 
 I will wrap-up basically all I can squeezed-out of my brain from the 
 previous lesson thus far.
